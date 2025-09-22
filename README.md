@@ -1,18 +1,20 @@
 
 
+<p align="center"> <img src="https://files.catbox.moe/rd9wh0.png" alt="sean" height="130">
 
 
 
-
-**<p align="center">[interests masterlist](https://rentry.co/broker-phighting)  .  [strawpage](https://meowfulofchocolate.straw.page) . [pronouns page](https://en.pronouns.page/@jack_fkennedy) . [atabook](https://absentminded.atabook.org/?page=1) . [rentry (OLD)](https://rentry.co/princessclover) . [rentry (NEW)](https://rentry.co/jack_fkennedy)</p>**
-
+**<p align="center"> ![monsterenergy](https://yoisource.carrd.co/assets/images/gallery03/1a332b42.gif?v=f12750d2)**
 
 
+**<p align="center"> ![stars](https://pixels.crd.co/assets/images/gallery87/90d41b90.gif?v=29416114)     sean　†‿ elliott ◞࿐**
+<p align="center"> 𝜗℘  ۪۪   ◟‿ ྀི︶ c + h    welcome  /  encouraged 👀
+<p align="center">     ╋━ ˚ ۪۪ ໒꒱.  plural   -     very forgetfull sorryyy >_>    ྀ 　  ྀི
+<p align="center"> ㅤ⠀──⠀⠀PLEASE  feel  free  to  interact  ͝ ¨·.·¨ ༏ i  have  very  few  friends  who  play  ponytown
 
-**<p align="center"> haii im mari aka noa aka kennedy... </p>**
 
-<p align="center">not much here but im almost ALWAYS afk so pls leave a message on my atabook (i look there more often) !!</p>
+<p align="center"> <img src="https://files.catbox.moe/zv3en3.png" alt="sean" height="200">
 
-<p align="center"> he/him or zhe/zher dont be afraid to talk 2 me!!! </p>
+<p align="center"> <img src="https://yoisource.carrd.co/assets/images/gallery03/f7fdd58d.png?v=f12750d2" alt="divider" height="200">
 
-!<p align="center"> ![transformice](https://i.pinimg.com/236x/8e/86/a5/8e86a562506ec857ba6b4feda3d4e840.jpg)</p>
+**<p align="center">  .  [strawpage](https://k00lkidd.straw.page) . [pronouns page](https://en.pronouns.page/@jack_fkennedy) . [atabook](https://absentminded.atabook.org/?page=1) . </p>**
