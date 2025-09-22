@@ -27,4 +27,4 @@
 **<p align="center"> <img src="https://files.catbox.moe/zv3en3.png" alt="sean" height="200">   ⠀⠀ ⠀| ͜͝ | ͜͝ | ͜͝ | ͜͝ | ⠀⠀  ![views](https://komarev.com/ghpvc/?username=coreofaplanet&style=plastic&color=94d5ff&label=seanlings+->)**
 <p align="center"> <img src="https://yoisource.carrd.co/assets/images/gallery03/f7fdd58d.png?v=f12750d2" alt="divider" height="200">  
   
-**<p align="center">  .  [strawpage](https://k00lkidd.straw.page) . pronouns page (no link, wip) . [atabook](https://absentminded.atabook.org/?page=1) . </p>**
+**<p align="center">  .  [strawpage](https://k00lkidd.straw.page) . pronouns page (no link, wip) . [atabook](https://beatzzpurrminote.atabook.org/) . </p>**
