@@ -8,7 +8,7 @@
 
 
 **<p align="center"> ![stars](https://pixels.crd.co/assets/images/gallery87/90d41b90.gif?v=29416114)     sean　†‿ elliott ◞࿐**
-<p align="center"> 𝜗℘  ۪۪   ◟‿ ྀི︶ c + h    welcome  /  encouraged 👀
+<p align="center"> 𝜗℘  ۪۪   ◟‿ ྀི︶ c + h   encouraged  (please)  👀
 <p align="center">     ╋━ ˚ ۪۪ ໒꒱.  plural   -     very forgetfull sorryyy >_>    ྀ 　  ྀི
 <p align="center"> ㅤ⠀──⠀⠀PLEASE  feel  free  to  interact  ͝ ¨·.·¨ ༏ i  have  very  few  friends  who  play  ponytown
 
