@@ -3,7 +3,7 @@
 
 
 **<p align="center"> 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3ip2n486q4iv6dxx535wa22oa&cover_image=true&theme=natemoo-re&show_offline=false&background_color=abe1e2&interchange=true&bar_color=c8d42b&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)** height="100"> 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3ip2n486q4iv6dxx535wa22oa&cover_image=true&theme=natemoo-re&show_offline=false&background_color=abe1e2&interchange=true&bar_color=c8d42b&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)** 
 
 <p align="center"> <img src="https://yoisource.carrd.co/assets/images/gallery03/f7fdd58d.png?v=f12750d2" alt="divider" height="200">  
 
@@ -24,7 +24,7 @@
 
 
 
-   ⠀⠀ ⠀| ͜͝ | ͜͝ | ͜͝ | ͜͝ | ⠀⠀  ![views](https://komarev.com/ghpvc/?username=coreofaplanet&style=plastic&color=94d5ff&label=queerlings+->&base=0)**
+<p align="center">    ⠀⠀ ⠀| ͜͝ | ͜͝ | ͜͝ | ͜͝ | ⠀⠀  ![views](https://komarev.com/ghpvc/?username=coreofaplanet&style=plastic&color=94d5ff&label=queerlings+->&base=0)**
 <p align="center"> <img src="https://yoisource.carrd.co/assets/images/gallery03/f7fdd58d.png?v=f12750d2" alt="divider" height="200">  
   
 **<p align="center">  .  [strawpage](https://k00lkidd.straw.page/) . pronouns page (no link, wip) . [atabook](https://beatzzpurminote.atabook.org/) . </p>**
